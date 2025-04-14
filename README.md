@@ -103,7 +103,7 @@ I’m Mahdi Goudini, born in the spring of 1990 in Tehran, with a passion for de
 #### Experience And Salary
 
 - **Work Experience** : 17 Years
-- **Salary Expectation** : 600 - 700 US$
+- **Salary Expectation** : 600 - 700 US$ per month
 
 _____
 
